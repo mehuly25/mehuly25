@@ -8,9 +8,9 @@
 1. LinkedIn: https://www.linkedin.com/in/mehuly-chakraborthy-638a69195/ 
 2. Hackerrank:https://www.hackerrank.com/mehuly25
 
-### Scribbled muses
+### Yellowing pages with subtle words~ 🍂
 
-"And I'd sit, with vintage pots and dark feathers,
+"And I'd sit, with indellible pots and dark feathers,
 
  Dribbling codes, while the sun rusts down,
  
@@ -20,4 +20,4 @@
 
 
 
-#### ~ Mehuly :)
+#### ~ Mehuly 🍁🍁
